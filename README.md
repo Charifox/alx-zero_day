@@ -1,1 +1,1 @@
-My first readme
+CHARIFOX CR7
